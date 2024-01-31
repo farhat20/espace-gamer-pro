@@ -1,0 +1,1 @@
+Site de jeux vidéo offrant des actualités, des critiques, des guides, des événements en ligne et en direct, des forums de discussion, ainsi que des ventes de jeux vidéo, des accessoires, des consoles de jeux et d'autres produits liés aux jeux vidéo. Il s'adresse aux joueurs professionnels et passionnés.
